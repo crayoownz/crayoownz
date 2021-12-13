@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @crayoownz
+- 👀 I’m interested in your credit card informaiton :D
+- 🌱 I’m currently learning how to get good at minecraft :,)
+- 💞️ I’m looking to collaborate on scripting for cyberpatriot *pwease?*
+- 📫 How to reach me crayoownz#3063
